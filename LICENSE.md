@@ -1,4 +1,4 @@
-
+Experience oil empire like never before with hidden Scripts for oil empire, the #1 Script. Includes anti-ban and speed for unbeatable performance.
 
 
 
